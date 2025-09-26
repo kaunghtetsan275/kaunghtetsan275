@@ -1,5 +1,4 @@
 # Kevin of The House _Cattt_
-### Kaung Htet San (ကောင်းထက်စံ)
 <p> ~ Welcome ~ here, here ...  have some tea 🍵🫖 ~ um, don't mind the gurls ... <br> KYOKO! STOP HTTING AKARI! (˶ᵔ ᵕ ᵔ˶) make yourself at home ... </p>
 <div align="center">
 <img align="center"
